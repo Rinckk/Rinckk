@@ -4,7 +4,7 @@ I'm Rick known as Ash, I'm a 15 y/o kid who is interested in Development. I like
 ## Skills and Experience's!୨୧
 ・Gaming
 
-・Taking Care
+・Riding a bike
 
 ・Minecraft Developer # AinoMC 
 
