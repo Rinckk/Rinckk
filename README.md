@@ -6,7 +6,7 @@ I'm Rick known as Ash, I'm a 15 y/o kid who is interested in Development. I like
 
 ・Riding a bike
 
-・Minecraft Developer # AinoMC 
+・Minecraft Developer
 
 ・FiveM Developer # IbizaRP
 
