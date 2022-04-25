@@ -3,7 +3,9 @@ I'm Luvcyy, I'm a 16 y/o kid who is interested in Development. I like to play Mi
 
 
 
-# Bella not Mean.
+# Taken By Ella
+
+Im a bully to Rick
 
 ## Skills and Experience's!୨୧
 ・Gaming
