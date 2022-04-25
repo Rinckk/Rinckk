@@ -1,5 +1,5 @@
 # Hiya There! 💖
-I'm Luvcyy, I'm a 16 y/o kid who is interested in Development. I like to play Minecraft/Fivem. I'm currently working on a big project since **04/02/2022**. I love to mess with JavaScript when i'm bored! That's me!:)
+I'm Luvcyy, I'm a 16 y/o kid who is interested in Development. I like to play Minecraft/Fivem. I love to mess with JavaScript when i'm bored! That's me!:)
 
 
 
