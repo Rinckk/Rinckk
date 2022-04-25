@@ -3,7 +3,7 @@ I'm Luvcyy, I'm a 16 y/o kid who is interested in Development. I like to play Mi
 
 
 
-# Taken By Ella
+# Taken By Bella
 
 Im a bully to Rick
 
