@@ -1,6 +1,9 @@
 # Hiya There! 
 I'm Rick, I'm a 16 y/o kid who is interested in Development. I like to play Minecraft/Fivem. I love to mess with JavaScript when i'm bored! That's me!:)
 
+# Taken by Bella
+Havin eSex / w Bella
+
 ## Skills and Experience's!୨୧
 ・Gaming
 
