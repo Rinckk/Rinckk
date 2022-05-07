@@ -9,7 +9,7 @@ Yannick is een clown
 
 ・IDFK
 
-・Lua / Java
+・HTML / CSS / LUA / JAVA
 
 ・yMap skinner
 
